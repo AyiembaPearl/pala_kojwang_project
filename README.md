@@ -1,0 +1,1 @@
+# pala_kojwang_project
